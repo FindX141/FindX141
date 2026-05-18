@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FindX141
 - 👀 I’m Interested In Learning New Things
 - 🌱 I’m Currently Learning Ethical Hacking
-- 💞️ I’m looking to collaborate on ummmmm
+- 💞️ I’m looking to collaborate on ummmmmm
 - 📫 My Email...;findx141@gmail.com
 
 <!---
